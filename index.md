@@ -1,12 +1,12 @@
 # Laura Cocq–Duché
 
 📍 Bordeaux / Pau   
-✉️ [l.cocqduche@gmail.com](mailto:l.cocqduche@gmail.com)
-🧑‍🎓 LinkedIn: www.linkedin.com/in/laura-cocq-duché-279074298
+- ✉️ [l.cocqduche@gmail.com](mailto:l.cocqduche@gmail.com)
+- 🧑‍🎓 LinkedIn: www.linkedin.com/in/laura-cocq-duché-279074298
 ---
 
 ## 🎯 Profil
-Étudiante en communication, passionnée par l’univers du web et des médias numériques.
+- Étudiante en communication, passionnée par l’univers du web et des médias numériques.
 
 ---
 
