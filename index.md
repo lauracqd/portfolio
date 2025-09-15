@@ -2,7 +2,7 @@
 
 📍 Bordeaux / Pau   
 - ✉️ [l.cocqduche@gmail.com](mailto:l.cocqduche@gmail.com)
-- 🧑‍🎓 LinkedIn: www.linkedin.com/in/laura-cocq-duché-279074298
+- 🧑‍🎓 LinkedIn: www.linkedin.com/in/laura-cocq-duché-279074298/
 ---
 
 ## 🎯 Profil
